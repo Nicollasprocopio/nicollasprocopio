@@ -8,4 +8,6 @@ Meu nome é Nicollas Procopio
 -Utilizo esse espaço para minha organização e compartilhamento dos meu projetos desenvolvido
 
 ### Você pode entrar em contato comigo📫
-00001096789
+00001096789358sp@al.educacao.sp.gov.br
+
+@nicollas_procopio
